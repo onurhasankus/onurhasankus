@@ -1,4 +1,4 @@
-### Hi there 👋
+### Onur Hasan KUŞ ❤️
 
 <!--
 **onurhasankus/onurhasankus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
